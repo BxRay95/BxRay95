@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **bray387@outlook.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1tOoXL4yoXb5Xppq-7tHU96SD0ooEd9Dj/view?usp=sharing](https://drive.google.com/file/d/1tOoXL4yoXb5Xppq-7tHU96SD0ooEd9Dj/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1sE9uMtjSlUZSU0MHUuoBpADJtkCARBxm/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
